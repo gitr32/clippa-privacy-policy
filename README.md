@@ -1,6 +1,6 @@
 Privacy Policy
 
-This policy applies to all information collected or submitted on Clippa’s website and our apps for iPhone and any other devices and platforms.
+This policy applies to all information collected or submitted on Clippa’s app for iPhone.
 
 
 Information we collect
